@@ -4,8 +4,8 @@
 # ------------------------------
 
 
-
-\x1b[38;5;50 TOOLS IS OFF 🥱 NEW UPDATE ALL BUY AND NUE UPDATE ✅
+  
+   TOOLS IS OFF 🥱 NEW UPDATE ALL BUY AND NUE UPDATE ✅
 
 
 
